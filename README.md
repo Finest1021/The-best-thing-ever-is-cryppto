@@ -1,1 +1,3 @@
-# The-best-thing-ever-is-cryppto
+# The-best-thing-ever-is-crypto....
+For every decisions you make in this space they are legit.
+Never regret the mistskes you made time passed what matters is the process.
